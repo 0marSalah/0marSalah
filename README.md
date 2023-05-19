@@ -6,4 +6,4 @@
 
  💞️ I'm looking to collaborate on great and innovative projects with great minds like you. Let's make a difference in our society!
 
- 📫 You can reach me via email at brightdaniel5050@gmail.com or visit my website [find-omar](https://0marSalah.github.io/Find-omar/).
+ 📫 You can reach me via email at omar.salah1597@gmail.com or visit my website [find-omar](https://0marSalah.github.io/Find-omar/).
