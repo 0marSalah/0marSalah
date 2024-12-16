@@ -4,4 +4,4 @@
 
  💞️ I'm looking to collaborate on great and innovative projects with great minds. Let's make a difference in our society!
 
- 📫 You can reach me via email at omar.salah1597@gmail.com or visit my website [devomar.tech](https://devomar.tech/).
+ 📫 You can reach me via email at itsdevomar@gmail.com or visit my website [devomar.tech](https://devomar.tech/).
