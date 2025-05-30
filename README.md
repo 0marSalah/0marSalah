@@ -1,4 +1,4 @@
- 👋 Hi, I'm @Omar
+ 👋 Hi, I'm Omar
 
  👀 I'm interested in building and maintaining apps with TypeScript, Python and mobile apps with crossplatform ReactNative.
 
